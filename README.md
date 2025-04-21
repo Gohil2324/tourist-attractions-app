@@ -26,5 +26,5 @@
 **Denil Gohil**  
 📍 BSc Computer Science Graduate  
 🎯 Incoming MSc Cybersecurity Student @ University of Hertfordshire (Sept 2025)  
-🔗 [LinkedIn](www.linkedin.com/in/denil-gohil-6b3b9a264)
+🔗 [LinkedIn]- ( https://www.linkedin.com/in/denil-gohil-6b3b9a264/ )
 
